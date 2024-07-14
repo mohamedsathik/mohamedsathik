@@ -2,7 +2,13 @@
 
 ![Profile Views](https://komarev.com/ghpvc/?username=sathikofficial2028&color=blue)
 
+<img src="https://cdn.dribbble.com/users/926537/screenshots/4502902/media/3f8bd37028526e0223e5fd780a318360.gif">
+
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
+
+
+
+
 
 ## 🌐 Contact
 - [![Email](https://img.icons8.com/?size=100&id=EgRndDDLh8kS&format=png&color=000000)](mailto:sathikofficial2028@gmail.com)  [![LinkedIn](https://img.icons8.com/?size=100&id=XRDimtpq5vCY&format=png&color=000000)](https://www.linkedin.com/in/mohamedsathik28)
